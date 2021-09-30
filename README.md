@@ -1,3 +1,3 @@
 ### Hi there 👋🏻
 
-I'm Patrick and I occasionally blog at [patrickmuff.ch](https://patrickmuff.ch). 
+I'm Patrick and you can find me on [patrickmuff.ch](https://patrickmuff.ch).
